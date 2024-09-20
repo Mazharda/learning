@@ -1,2 +1,2 @@
 # learning
-to learn stuff 
+to learn stuff .
